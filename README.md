@@ -1,0 +1,1 @@
+# Solution_for_BDCI2019_OCR
